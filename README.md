@@ -1,0 +1,1 @@
+cuma belajar doang
